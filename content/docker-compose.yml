@@ -1,0 +1,8 @@
+version: '3.8'
+services:
+  myservice:
+    image: quartz:gaia
+    volumes:
+      - /mnt/cache/nextcloud/HeccinNextCloud/files/project/dnd/dnd-vaults/:/mnt
+    stdin_open: true  # keep stdin open (similar to -i)
+    tty: true         # allocate a pseudo-TTY (similar to -t)
