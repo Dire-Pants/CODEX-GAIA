@@ -1,0 +1,99 @@
+- Back to outpost commander Bae
+Shaken by death
+- Thrum of power in idol and staff
+- Giuseppe is in deck
+- Harold and Fran in crew hold tending to wounds
+- Wither and ashling channeling energy and nursing aminals
+- fuck kaida
+- woadie sippin mead and still rabbit
+- cat infatuated with wither at the moment
+- theo skeet shooting
+- gius 
+- Ring layered in adamantine, 
+- bae friends with a centaurs 
+- we'd all notice 
+- We land and ship is recognized 
+	- runner 
+- spirits are higher at the outpost, feeling less war torn
+- centaurs out on the move, no more roving camp
+- bae thought we perished but knew we succeeded in mission when blight perished
+- West mentions mother tree is still aisling
+- West asks about asking mages to inspect the items we found
+- theo asks about centaurs, they are now at the perimeter of the jungle fending off residual twisted blight and people
+- gius did nat 20 and perceives mala eastern most island on ignia, and floating maps and tracks and bristle point 
+- West mentioned death of cloud captain
+- bae surprised he was the source of the blight 
+- west mentions verna
+- bae says there was rumors of them leaving 
+- West asks for aid interrogating them
+- we also give more information about everything experiences thus far
+- red asks about the aerokok, wars has intensified between gargoyles and them 
+- Aurelia signed treaty with them, troops sent and asked troops to work with black crown 
+- bae realized we are unhappy with the black crown
+- bae vows to protect the southern area
+- resources spread thin
+- ignia eastern mining overrun by refugees from fire creatures popping out of volcanoes
+- war in the west 
+- bae thinks kaida works with honor
+- kaida is getting a cut from nobility
+- bae has spies Keeping tabs on kaeda just in case
+- forward parties being sent around dol solara we can help
+- skaaldir asks to be free'd from kaida
+- she is aware of the problems 
+- baeleon special force 
+- we agree to fly banner of lansraad and get a writ of passage to keep the black crown off us
+- we agree to dol solara
+- theo flirts with aisling
+- West goes into a tree who tells him it is relieved
+- mages untable to get info from Verna, she was silent and not kind to mages
+- bae mentions to seek out the mage named thorm for more info on the wooden idol
+- west casts friends and convinces bae to join us through magical means
+- magician is suspicious but west lies incredibly well
+- woadie causing a ruckus in outpost
+- mess hall tent chaos, halfling goes flying
+- woadie killed Stewie in enraged bunny form
+- west fucks with skaaldir
+- ashling freaks me out 
+- bae 
+- woadie is an annoying ass rabbit
+- woadie shoots off like a cannon at west for taunting him, he bunny kicks west
+- we arrive to dol solara
+- goons realize commander baelen and he says he wants to assess the state of the city 
+- the birds shit on the intimidating goons 
+- nobody knows the heimlich Gaia 
+- we shoot the idol out of the grappling hook
+- bae asks kaida the state of the city
+- she is shocked at his unannounced arrival
+- bae fills her in with a simplified version Of recent events
+- Bae calls out that black crown are guarding nobility not people
+- kaida really is trying to do work to protect people but also glossing over details
+- West mentions he notices this and asks for a more earnest assessment 
+- kaida mad we left, we mention we did good work and west mentions they do nothing but for the benefit of themselves 
+- West challenges kaida's leadership 
+- woadie let loose and kaida berates us for not treating him well
+- We assure we did the best we could do
+- West and theo are cutthroats 
+- West calls her nothing but a profiteer and mentions she is doing nothing to protect the multiverse
+- kaida says she is doing the best she can do to defender
+- kaida mentions another would take her place and the crown would fall to criminal corruption if she didn't do her part
+- kaida is angry about claims not being corroborated
+- theo and west she isn't really addressing the real problem and mentions the multiverse
+- theo has no tolerance and flings a throwing knife at kaida
+- aisling hesitant to engage in abject murder 
+- headband of intellect Rolls a 23 and makes case for common ground 
+- aisling recalls personal history about the cult and an impassioned speech and that this is stupid and all the cultists need to be eradicated. We're all on the same page but not keyed into the same information. They joined cause to pick up the cultists 
+- kaida mentions making the nobles pay for protection 
+- skaaldir and red break into apothecary and pack Giuseppe full of herbs and he stabilizes but remains unconscious 
+- guards come in and theo and aisling leave, something about a pickup line I missed
+- West uses blooming blade against him
+- West Quickens spell and uses green flame blade
+- West vs scary fairy
+- bae asks for reason and to listen to the young elf
+- West mentions being wary of kaida taking advantage of a power vacuum 
+- woadie ready to get revenge of west fucking with him and bounces him into the room theo is in
+- theo and aisling try to use their feminine wiles to GTFO around guards but west is unrelenting about kaida and trying to convince the commander to ditch her for more trustworthy allies but baleon mentions she isn't the best ally but she is doing enough of her part 
+- Skaaldir stealth escorts out commander out
+- Giuseppe enlarges red and everyone crawls under his stinky swamp ass
+
+
+
